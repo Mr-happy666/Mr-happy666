@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning some advanced technologies
 - 🌱 I’m currently learning dsp
 - 💞️ I’m looking to collaborate on how to learn well
-- 📫 How to reach me qq 8867147495
+- 📫 How to reach me qq 867147495
 - 😄 Pronouns: optimistic
 - ⚡ Fun fact: learning maakes me powerful
 
